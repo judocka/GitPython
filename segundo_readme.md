@@ -4,4 +4,4 @@
 
 - Cena 2: Nao fala italiano
 
-- Cena 2: Mata todo mundo!
+- Cena 3: Mata todo mundo!
