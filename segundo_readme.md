@@ -1,0 +1,5 @@
+# O Voo do Dragão - Bruce Lee
+
+- Cena 1: Tang Lung aparece no aeroporto
+
+- Cena 2: Mata todo mundo!
